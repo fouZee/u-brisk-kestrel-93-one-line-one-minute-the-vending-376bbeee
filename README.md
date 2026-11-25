@@ -8,9 +8,9 @@ Free to enter and done in a minute: write one pickup line, 200 characters at mos
 
 ## The entry
 
-> Hey beautiful — I've been coiled up all day waiting for you. Press B7 and I'll drop something sweet.
+> Hey beautiful — I've been coiled up all day waiting for you. Press B7 and I'll drop something sweet — no exact change needed.
 
-One line, spoken by the machine itself: its coils, its B7 button, its drop — with the punch landing on the last few words.
+One line, spoken by the machine itself: its coils, its B7 button, its drop, its exact change — with the punch landing on the last few words, when the machine waives exact change for the human it likes.
 
 ## Run it
 
